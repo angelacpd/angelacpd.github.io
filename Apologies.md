@@ -6,7 +6,7 @@ Eu sou capaz de respeitar que alguém se afaste, mas me incomoda muito a sensaç
 
 Estou disposto a reconhecer e me desculpar por meus erros para que todo mundo possa seguir sua vida em paz, sem mágoa, sem ressentimento, sem mais contato
 
-Mas preciso de ajuda para isso
+Mas preciso de ajuda para isso. Sei que só demandei de você sem retribuir muito, mas me ajude mais uma vez, para encerrar essa história direito
 
 Favor considerar esta possibilidade como uma proposta positiva para todos
 
