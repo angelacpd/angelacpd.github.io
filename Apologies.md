@@ -4,4 +4,4 @@ Estou disposto a reconhecer e me desculpar por meus erros para que todo mundo po
 
 Mas preciso de ajuda para isso
 
-Favor considerar esta possibilidade como algo positivo para todos
+Favor considerar esta possibilidade como uma proposta positiva para todos
