@@ -1,4 +1,4 @@
-Eu sei que sou o culpado, mas também sei que não tentei enganar ou coagir ninguém
+Eu sei que sou o culpado, sei que te causei uma chateação não merecida, mas também sei que não tentei enganar, coagir ou fazer qualquer coisa criminosa
 
 Existem consequências que eu sei que mereço e outras que já parecem demais e me fazem mal há 3 anos
 
